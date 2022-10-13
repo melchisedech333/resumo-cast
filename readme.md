@@ -21,4 +21,8 @@ Eu pessoalmente sou fã deles e gosto muito do trabalho que eles fizeram, pra mi
 
 Vale lembrar que como eu faço estes resumos para me ajudar em meus estudos, talvez eles fiquem sintéticos (ou grandes) demais, então não espere muita formalidade.
 
+<b>Segue abaixo a lista dos resumos:</b>
+
+- [O Poder do Hábito - Charles Duhigg](resumos/1 - O Poder do Hábito - Charles Duhigg.md)
+
 
