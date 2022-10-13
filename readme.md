@@ -19,7 +19,7 @@ Livros como "O poder do hábito", "As armas da persuasão", "Como convencer algu
 
 Eu pessoalmente sou fã deles e gosto muito do trabalho que eles fizeram, pra mim é simplesmente fantástico. Logo, decidi que seria legal disponibilizar os resumos que faço (para mim) aqui no Github, talvez seja útil para mais pessoas 😉
 
-Vale lembrar que como eu faço estes resumos para me ajudar em meus estudos, talvez eles fiquem sintéticos (ou grandes) demais, então não espere muita formalidade.
+Vale lembrar que como eu faço estes resumos para me ajudar em meus estudos, talvez eles fiquem sintéticos (ou grandes) demais, então não espere muita formalidade. Também vale lembrar que por vezes eu adiciono algum insight, ou coisa semelhante, no resumo, então caso você não se identifique com algo, ignore. Em todo caso, boa leitura 😀
 
 <br>
 
