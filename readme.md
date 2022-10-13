@@ -33,5 +33,6 @@ Também vale lembrar que por vezes eu adiciono algum insight no resumo, ou algum
 
 - <a href="resumos/1 - O Poder do Hábito - Charles Duhigg.md" >O Poder do Hábito - Charles Duhigg</a>
 - <a href="resumos/2 - O milagre da manhã - Hal Elrod.md">O milagre da manhã - Hal Elrod</a>
+- <a href="resumos/3 - As armas da persuasão - Robert B. Cialdini.md">As armas da persuasão - Robert B. Cialdini</a>
 
 
