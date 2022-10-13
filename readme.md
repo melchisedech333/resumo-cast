@@ -37,5 +37,6 @@ Também vale lembrar que por vezes eu adiciono algum insight no resumo, ou algum
 - <a href="resumos/4 - Os 7 Hábitos das Pessoas Altamente Eficazes - Stephen Covey.md">Os 7 Hábitos das Pessoas Altamente Eficazes - Stephen Covey</a>
 - <a href="resumos/5 - Como Convencer Alguém em 90 Segundos - Nicholas Boothman.md">Como Convencer Alguém em 90 Segundos - Nicholas Boothman</a>
 - <a href="resumos/6 - Foco - Daniel Goleman.md">Foco - Daniel Goleman</a>
+- <a href="resumos/7 - Os Segredos da Mente Milionária - T. Harv Eker.md">Os Segredos da Mente Milionária - T. Harv Eker</a>
 
 
