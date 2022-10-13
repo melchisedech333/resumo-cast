@@ -23,6 +23,10 @@ Vale lembrar que como eu faço estes resumos para me ajudar em meus estudos, tal
 
 <br>
 
+<img src="https://img.shields.io/github/directory-file-count/melchisedech333/resumo-cast/resumos?label=Quantidade total de resumos" >
+
+<br>
+
 <b>Segue abaixo a lista dos resumos:</b>
 
 - <a href="resumos/1 - O Poder do Hábito - Charles Duhigg.md" >O Poder do Hábito - Charles Duhigg</a>
