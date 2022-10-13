@@ -35,5 +35,6 @@ Também vale lembrar que por vezes eu adiciono algum insight no resumo, ou algum
 - <a href="resumos/2 - O milagre da manhã - Hal Elrod.md">O milagre da manhã - Hal Elrod</a>
 - <a href="resumos/3 - As armas da persuasão - Robert B. Cialdini.md">As armas da persuasão - Robert B. Cialdini</a>
 - <a href="resumos/4 - Os 7 Hábitos das Pessoas Altamente Eficazes - Stephen Covey.md">Os 7 Hábitos das Pessoas Altamente Eficazes - Stephen Covey</a>
+- <a href="resumos/5 - Como Convencer Alguém em 90 Segundos - Nicholas Boothman.md">Como Convencer Alguém em 90 Segundos - Nicholas Boothman</a>
 
 
