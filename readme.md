@@ -17,7 +17,7 @@ Para quem não conhece o Resumo Cast, ele é um Podcast criado por [João Cristo
 
 Livros como "O poder do hábito", "As armas da persuasão", "Como convencer alguém em 90 segundos", "Os segredos da mente milionária", e literalmente centenas de outros livros, são abordados e resumidos de maneira clara e objetiva.
 
-Eu pessoalmente sou fã deles e gosto muito do trabalho que eles fizeram, pra mim é simplesmente fantástico. Logo, decidi que seria legal disponibilizar os resumos que faço (para mim) aqui no Github, talvez seja útil para mais pessoas 😀
+Eu pessoalmente sou fã deles e gosto muito do trabalho que eles fizeram, pra mim é simplesmente fantástico. Logo, decidi que seria legal disponibilizar os resumos que faço (para mim) aqui no Github, talvez seja útil para mais pessoas 🙂
 
 Vale lembrar que como eu faço estes resumos para me ajudar em meus estudos, talvez eles fiquem sintéticos (ou grandes) demais, então não espere muita formalidade.
 
