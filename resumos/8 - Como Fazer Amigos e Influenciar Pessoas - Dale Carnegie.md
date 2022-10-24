@@ -51,7 +51,7 @@ Se você permanecer com aquela ansiedade de falar sobre sua própria vida, enqua
 
 <br>
 
-- <b>Ser verdadeiro consigo mesmo, e dar valor a auto-crítica</b>: se você admite seus erros é muito mais fácil conquistar o respeito das outras pessoas. Uma auto-crítica é muito melhor do que escutar a mesma crítica das outras pessoas. Um erro persistente pode persistir e lhe prejudicar pela vida toda, ele te tira energia e consome boa parte da sua capacidade mental. Quando você assume um erro, toda a energia e esforço agora passa a ser utilizada para buscar soluções pro erro, e não para coisas como justificá-lo.
+- <b>Ser verdadeiro consigo mesmo, e dar valor a auto-crítica</b>: se você admite seus erros é muito mais fácil conquistar o respeito das outras pessoas. Uma auto-crítica é muito melhor do que escutar a mesma crítica vindo das outras pessoas. Um erro persistente pode persistir e lhe prejudicar pela vida toda, ele te tira energia e consome boa parte da sua capacidade mental. Quando você assume um erro, toda a energia e esforço agora passa a ser utilizada para buscar soluções pro erro, e não para coisas como justificá-lo.
 <br><br>
 A vida é muito curta para ficar varrendo seus erros para debaixo do tapete, se justificando por eles e repetindo esses mesmos erros. Confesse seus erros, perceba-os e lute contra eles, melhore e supere eles.
 <br><br>
@@ -59,7 +59,7 @@ Lembre-se, tudo que acontece em sua vida, é culpa sua, direta ou indiretamente,
 
 <br>
 
-- <b>9 entre 10 discussões acabam com uma das partes super convencida, de que ela está muito mais certa do que a outra</b>: isso é um problema, pois se você está do lado que perdeu, não poderá fazer mais nada, e se está do lado que ganhou, você acabou de ferir o orgulho do seu oponente, fazendo-o sentir-se inferir, e agora ele carregará um certo ressentimento sobre você. E mais, quem é convencido contra a sua vontade, acaba sempre mantendo a opinião anterior, não pense que vencer logicamente uma discussão, fará você realmente fazer seu oponente mudar de opinião.
+- <b>9 entre 10 discussões acabam com uma das partes super convencida, de que ela está muito mais certa do que a outra</b>: isso é um problema, pois se você está do lado que perdeu, não poderá fazer mais nada, e se está do lado que ganhou, você acabou de ferir o orgulho do seu oponente, fazendo-o sentir-se inferior, e agora ele carregará um certo ressentimento sobre você. E mais, quem é convencido contra a sua vontade, acaba sempre mantendo a opinião anterior, não pense que vencer logicamente uma discussão, fará você realmente fazer seu oponente mudar de opinião.
 <br><br>
 As pessoas mais felizes e bem-sucedidas, são aquelas que evitam uma discussão a todo custo.
 <br><br>
@@ -89,13 +89,13 @@ Concentre seu tempo e energia em construir coisas de valor, coisas concretas, se
     Resolva o problema X.
     ```
     <br>
-    Principalmente em ambientes onde se trabalha com equipes que precisam ir evoluindo aos poucos e de maneira constante, as perguntas é um ótimo instrumento para criar uma sinergia entre as pessoas, tornar o ambiente mais agradável e não ficar dando a impressão que você está forçando os outros obrigatoriamente a fazer algo que elas não querem fazer de modo algum.
+    Principalmente em ambientes onde se trabalha com equipes que precisam ir evoluindo aos poucos e de maneira constante, as perguntas são um ótimo instrumento para criar uma sinergia entre as pessoas, tornar o ambiente mais agradável e não ficar dando a impressão que você está forçando os outros obrigatoriamente a fazer algo que elas não querem fazer.
     <br><br>
     Isso estimula um ambiente criativo, onde as pessoas acabam gostando de ser a responsável por suas ideias, vendo as mudanças que elas causam na organização, e assim se sentindo mais importantes e verdadeiros agentes de transformação.
     <br><br>
-    Em suma, sua função como líder e estimular as pessoas a terem boas ideias, e perguntas tornam as ordens mais aceitáveis e estimulam a criatividade nas pessoas, pois quem response as perguntas, torna-se um co-autor da solução.
+    Em suma, sua função como líder e estimular as pessoas a terem boas ideias, e perguntas tornam as ordens mais aceitáveis e estimulam a criatividade nas pessoas, pois quem responde as perguntas, torna-se um co-autor da solução.
     <br><br>
-    Também, perguntar coisas de interesse das pessoas, faz com que elas se conectem a você. Empreender é conectar-se a pessoas.
+    Também, perguntar coisas de interesse das pessoas, faz com que elas se conectem a você. E em suma, empreender é conectar-se a pessoas.
 
 <br>
 
