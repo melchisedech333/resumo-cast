@@ -3,19 +3,19 @@
 Alguns pontos centrais
 ---
 
-O hábito é uma das maneiras que o cérebro usa para poupar energia e sobrecargas.
+- O hábito é uma das maneiras que o cérebro usa para poupar energia e evitar sobrecargas.
 
-Leva-se na média de 1 a 3 meses para incorporar um hábito.
+- Leva-se na média de 1 a 3 meses para incorporar um hábito.
 
-A ideia é criar vários hábitos, de modo a criar um conjunto de bons hábitos, que venham a impactar drasticamente na vida.
+- A ideia é criar vários hábitos, de modo a criar um conjunto de bons hábitos, que venham a impactar benéfica e drasticamente na vida.
 
-Criar pequenas metas, e ao atingi-las, comemorar, pois isso impacta diretamente na formação de um hábito.
+- Criar pequenas metas, e ao atingi-las, comemorar, pois isso impacta diretamente na formação de um hábito.
 
-A força de vontade cada vez maior e engajada com o resultado que se deseja, contribui profundamente para a formação do hábito.
+- A força de vontade cada vez maior e engajada com o resultado que se deseja, contribui profundamente para a formação do hábito.
 
-Problemas, dificuldades, erros, e coisas semelhantes, são todos alertas e indícios de que algum hábito que nós temos não está sendo desenvolvido da forma correta. São reflexos que o corpo, a mente, a vida, nos mostram de que alguma coisa está errada e precisa ser mudada.
+- Problemas, dificuldades, erros, e coisas semelhantes, são todos alertas e indícios de que algum hábito que nós temos não está sendo desenvolvido da forma correta. São reflexos que o corpo, a mente, a vida, nos mostram de que alguma coisa está errada e precisa ser mudada.
 
-Para tudo que você for fazer tem que haver um motivo bem definido. Isso o ajuda a manter-se focado.
+- Para tudo que você for fazer tem que haver um motivo bem definido. Isso o ajuda a manter-se focado.
 
 <br>
 

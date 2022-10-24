@@ -5,7 +5,7 @@ A função da venda é ajudar o maior número possível de pessoas.
 
 Os gatilhos mentais são automatismos que temos em nossa mente, que possuem o objetivo de facilitar alguma tomada de decisão.
 
-<b>Obs:</b> usar os gatilhos mentais de maneira fraudulenta e mentirosa, acaba com sua autoridade e destrói de maneira irreversível a sua reputação no mercado. Faltar com o caráter te destrói.
+<b>Obs:</b> usar os gatilhos mentais de maneira fraudulenta e mentirosa, acaba com sua autoridade e destrói de maneira irreversível a sua reputação no mercado. <b>Faltar com o caráter te destrói</b>.
 
 <br>
 
@@ -28,9 +28,9 @@ Isso aumenta a probabilidade do cliente comprar, ou ao menos escutar uma determi
       
 A maior parte das pessoas tem a tendência de fazer aquilo com que eles se comprometem (principalmente socialmente).
 
-Uma possível maneira de usar isso no marketing é algo como dizer:
+<!-- Uma possível maneira de usar isso no marketing é algo como dizer:
  - Você se comprometeria em comprar uma dieta que faria bem para você?
- - Se a pessoa diz sim, você continua a proposta, até possivelmente realizar a venda. Pois este tipo mínimo de abertura já ajuda na venda.
+ - Se a pessoa diz sim, você continua a proposta, até possivelmente realizar a venda. Pois este tipo mínimo de abertura já ajuda na venda. -->
 
 <br>
 
