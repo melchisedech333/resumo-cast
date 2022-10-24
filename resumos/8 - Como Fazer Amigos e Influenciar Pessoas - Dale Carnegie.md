@@ -43,7 +43,7 @@ De maneira igual, também se aplica ao mercado, onde você deve desenvolver prod
 <br><br>
 Você deve se mostrar, e de fato buscar estar, interessado na vida da outra pessoa. Desta maneira você pode descobrir coisas que você não conhece, fazer muitos novos amigos e fazer com que as pessoas gostem de você, por simplesmente ouvi-las mais e alimentar diálogos onde elas falem sobre elas.
 <br><br>
-Se você permanecer com aquela ansiedade de falar sobre sua própria vida, enquanto a outra pessoa fala da vida dela. Isso fará com que a outra pessoa perceba sua falta de interesse, e na vez dela agirá da mesma maneira. E isso no final do processo ocorrerá num diálogo onde cada um dos participantes fingem estar se interessando e se conectando com o que o outro tem a dizer, quando na realidade tudo aquilo é uma mera perda de tempo para ambas as partes. E aqui se percebe outra coisa importante, não se doar ao próximo, no final das contas é perder tempo e dinheiro.
+Se você permanecer com aquela ansiedade de falar sobre sua própria vida, enquanto a outra pessoa fala da vida dela. Isso fará com que a outra pessoa perceba sua falta de interesse, e na vez dela, ela agirá da mesma maneira. E isso no final do processo ocorrerá num diálogo onde cada um dos participantes fingem estar se interessando e se conectando com o que o outro tem a dizer, quando na realidade tudo aquilo é uma mera perda de tempo para ambas as partes. E aqui se percebe outra coisa importante, não se doar ao próximo, no final das contas é perder tempo e dinheiro.
 
 <br>
 
@@ -96,5 +96,11 @@ Concentre seu tempo e energia em construir coisas de valor, coisas concretas, se
     Em suma, sua função como líder e estimular as pessoas a terem boas ideias, e perguntas tornam as ordens mais aceitáveis e estimulam a criatividade nas pessoas, pois quem response as perguntas, torna-se um co-autor da solução.
     <br><br>
     Também, perguntar coisas de interesse das pessoas, faz com que elas se conectem a você. Empreender é conectar-se a pessoas.
+
+<br>
+
+## Link do vídeo
+
+https://www.youtube.com/watch?v=vDwTMzsFI88
 
 
