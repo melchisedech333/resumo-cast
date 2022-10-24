@@ -6,7 +6,7 @@ O livro nos demonstra coisas que são clássicas e definitivas para influenciar 
 Fazer amigos significa conectar-se com as pessoas.
 
 <b>Pontos em que o livro nos ajuda:</b>
-- Dar novos pensamentos, novas visões e novas ambições.
+- Ter novos pensamentos, novas visões e novas ambições.
 - Facilitar fazer amigos de maneira fácil e rápida.
 - Aumentar sua popularidade.
 - Ajudará com que as pessoas entendam seu modo de pensar.
