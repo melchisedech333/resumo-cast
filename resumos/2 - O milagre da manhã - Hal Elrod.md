@@ -75,4 +75,10 @@ A ideia é fazer uma espécie de "ritual da manhã", contendo coisas benéficas 
 
 É importante fazer isso sempre pela manhã, pois ao acordar, é o momento em que mais estamos dispostos no dia. Também é importante saber identificar o que de fato é prioridade para você, para não colocar coisas demais e não conseguir cumpri-las.
 
+<br>
+
+## Link do Vídeo
+
+https://www.youtube.com/watch?v=9GusbMkFtY0
+
 

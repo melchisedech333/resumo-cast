@@ -85,4 +85,10 @@ A 2° fase é a do desconforto, e é necessário ainda muita disciplina e força
 
 A 3° fase é quando você já aceitou o novo hábito, e nesse momento você deve reforçar o máximo possível o hábito para que ele fixe profundamente em você.
 
+<br>
+
+## Link do Vídeo
+
+https://www.youtube.com/watch?v=hUIaKTesdnM
+
 

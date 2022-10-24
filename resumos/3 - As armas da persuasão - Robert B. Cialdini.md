@@ -93,4 +93,10 @@ Logo, esse é o principal gatilho de todos. E os acima, servem em muito para que
 
 Ser honesto, verdadeiro, ou seja, os gatilhos dos bons valores morais, tem mais peso do que todos os outros gatilhos.
 
+<br>
+
+## Link do Vídeo
+
+https://www.youtube.com/watch?v=fKWbgyMdN0g
+
 

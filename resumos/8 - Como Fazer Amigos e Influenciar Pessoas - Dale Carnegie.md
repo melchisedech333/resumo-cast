@@ -99,7 +99,7 @@ Concentre seu tempo e energia em construir coisas de valor, coisas concretas, se
 
 <br>
 
-## Link do vídeo
+## Link do Vídeo
 
 https://www.youtube.com/watch?v=vDwTMzsFI88
 

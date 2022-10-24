@@ -75,4 +75,10 @@ Quando você realiza uma atividade, você deve colher feedbacks, para ir automat
 
 É muito bom e importante você buscar aprender de forma inteligente, tendo um treinador, ou alguém que lhe instrua para te ajudar a corrigir os erros.
 
+<br>
+
+## Link do Vídeo
+
+https://www.youtube.com/watch?v=2XkhucUPxdE
+
 

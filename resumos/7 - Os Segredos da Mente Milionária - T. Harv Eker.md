@@ -157,4 +157,12 @@ Ter medo não é o problema, o problema é se paralisar pelo medo, ou se acovard
 
 Aprender a todo momento é simplesmente fundamental e um processo constante até o fim da vida.
 
+<br>
+
+## Link do Vídeo
+
+Vídeo 1: https://www.youtube.com/watch?v=Wsu2X-HYmI8
+
+Vídeo 2: https://www.youtube.com/watch?v=Hyztd5Mflb0
+
 

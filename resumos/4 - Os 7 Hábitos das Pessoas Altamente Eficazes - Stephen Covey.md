@@ -114,4 +114,10 @@ Ler livros, aprender aquilo que gosta, manter o corpo e mente sadios.
 
 Ou seja, buscar ser cada dia melhor, um expert cada vez mais refinado na sua área.
 
+<br>
+
+## Link do Vídeo
+
+https://www.youtube.com/watch?v=SNrONPo5Me8
+
 
