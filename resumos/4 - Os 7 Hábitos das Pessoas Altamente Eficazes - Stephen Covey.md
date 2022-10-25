@@ -77,7 +77,7 @@ Não pensar que basta sua parte do bolo, e que os outros que se dane.
 
 Quando estamos bem conosco, e focados em situações ganha/ganha, tudo só tende a melhorar.
 
-Essa noção deve permear todos os segmentos da empresa, ou seja, relações com funcionários, sócios, parceiros, clientes, tudo quanto possível. Pois somente realções ganha/ganha se sustentam a longo prazo.        
+Essa noção deve permear todos os segmentos da empresa, ou seja, relações com funcionários, sócios, parceiros, clientes, tudo quanto possível. Pois somente relações ganha/ganha se sustentam a longo prazo.        
 
 <br>
 
