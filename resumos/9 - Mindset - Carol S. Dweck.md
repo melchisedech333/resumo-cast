@@ -63,9 +63,19 @@ Ao criticar e elogiar a coisa certa em relação aos atos de uma pessoa, coopera
 
 - 3 - Dar um nome para seu sabotador interno (que geralmente te fala as frases do Mindset fixo).
 
-- 4 - Conversar com esse sabotador quando ele aparecer (coisas como: da um tempo, não preciso da sua ajuda agora não).
+- 4 - Conversar com esse sabotador quando ele aparecer (coisas como: da um tempo, não preciso da sua ajuda agora não). Responsa ele com respostas dignas de um Mindset de crescimento.
 
 - 5 - Tentar trocar as frases que seu Mindset fixo te proporciona, por frases típicas de uma mentalidade de crescimento. Para desta maneira tentar neutralizar o Mindset fixo.
+
+<br>
+
+<b>Frase de camiseta:</b>
+
+- Que eu todo dia aprenda coisas novas, seja para mim, ou para ajudar as outras pessoas.
+
+- Não divida o mundo entre os fracos e os fortes, entre o sucesso e o fracasso, divida o mundo entre os que aprendem e os que não aprendem. E todo mundo é capaz de aprender algo.
+
+- Se você quer passar sua vida fazendo somente o que é fácil, você deve se envergonhar.
 
 <br>
 
