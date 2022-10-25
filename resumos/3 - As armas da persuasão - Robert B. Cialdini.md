@@ -40,7 +40,7 @@ As pessoas tendem a considerar um comportamento adequado, na medida em que ele �
 
 Gatilho muito usado pelas pessoas para saber o que tem qualidade, afinal, se muitos usam algo, é sinal de que é bom.
 
-Um exemplo disso é casas noturnas formarem filas enormes no lado de fora, propositalmente, mesmo tendo lugares vazios dentro da casa. Isso causa a impressão que esse é o local mais procurado da noite, fazendo com que pessoas acabem vindo pro local. O que é errado, porque há lugares vazios, mas serve para esclarecer a ideia.
+Um exemplo real disso são casas noturnas formarem filas enormes no lado de fora, propositalmente, mesmo tendo lugares vazios dentro da casa. Isso causa a impressão que esse é o local mais procurado da noite, fazendo com que pessoas acabem vindo pro local. O que é errado e não deve ser feito, porque há lugares vazios, isso é algo que pode acabar com a reputação do local.
 
 Se você fez um produto que beneficiou as pessoas realmente, você tem todo direito de colocar testemunhos das pessoas, e coisas do tipo, de modo que seu produto fique bem falado.
 
