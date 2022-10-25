@@ -1,9 +1,9 @@
 
 # Os Segredos da Mente Milionária - T. Harv Eker
 
-A mente subconsciente representa em média 95% da mente. A mente consciente representa em média 5%. Logo, devemos dar atenção às coisas que inserimos na mente subconsciente, bem como, em como podemos fazer uso da mesma.
+A mente subconsciente representa em média 95% da mente. A mente consciente representa em média 5%. Logo, devemos dar atenção as coisas que inserimos na mente subconsciente, bem como, em como podemos fazer uso da mesma.
 
-Antes de tudo, você deve se auto-convencer que você possui uma mente milionária. Ou seja, você deve buscar se comportar como tal, e dizer a si mesmo que tem uma mente milionária. Esse foco em mentalizar/meditar e repetir mantras é algo praticado nesse meio, onde eles dizem a si mesmos as coisas que são e as coisas que querem ser. Desde que isso esteja alinhado com a vontade de Deus, não vejo problemas. Você se comporta primeiro como uma pessoa evoluída, e com o tempo você se torna de fato uma pessoa evoluída. O foco aqui é na programação mental que você possui, tem que se livrar da má programação e passar a se re-educar nesse sentido.
+Antes de tudo o autor nos alerta que você deve acreditar que você possui uma "mente milionária". Ou seja, passar a acreditar que você pode muito bem evoluir para uma mentalidade mais dinâmica e evoluída. Esse foco em mentalizar/meditar e repetir mantras é algo praticado nesse meio (do empreendedorismo), onde eles dizem a si mesmos as coisas que são e as coisas que querem ser. Desde que isso esteja alinhado com a vontade de Deus, não vejo problemas. E desde que isso não seja uma lavagem cerebral, também não vejo problemas. Você se comporta primeiro como uma pessoa evoluída, e com o tempo você se torna de fato uma pessoa evoluída. O foco aqui é na programação mental que você possui, tem que se livrar da má programação e passar a se re-educar nesse sentido.
 
 <br>
 
@@ -23,7 +23,7 @@ Ser uma pessoa de grau 10, para desafios de grau 8.
 17 arquivos da riqueza
 ---
 
-<b>Obs:</b> o foco desses arquivos é na <b>mentalidade</b> que se deve ter ao encarar as coisas da vida, e não no fato das pessoas serem atualmente financeiramente ricas ou pobres. Elas serem financeiramente ricas ou pobres não é o ponto aqui, mas sim a mentalidade que a pessoa possui. Uma mentalidade bem formada conduz uma pessoa à riqueza, ou pelo menos a ajuda significativamente.
+<b>Obs:</b> o foco desses <i>arquivos</i> é na <b>mentalidade</b> que se deve ter ao encarar as coisas da vida, e <b>não</b> no fato das pessoas serem atualmente financeiramente ricas ou pobres. Elas serem financeiramente ricas ou pobres <b>não</b> é o ponto aqui, mas sim a mentalidade que a pessoa possui. E claro que uma mentalidade bem formada conduz uma pessoa a riqueza, ou pelo menos a ajuda significativamente.
 
 <br>
 
@@ -93,7 +93,7 @@ Há pessoas que possuem a "síndrome da superioridade", onde pensam coisas como:
 
 Não existe bala de prata, e para coisas sofisticadas, é necessário aprendizado orgânico, ou seja, prática, dedicação e aprendizado, e claro, através de muitos erros e dificuldades superadas.
 
-Pensar que você pode resolver qualquer problema, é típico da mentalidade milionária.
+Pensar que você pode resolver qualquer problema, é típico da mentalidade dita milionária.
 
 <br>
 
