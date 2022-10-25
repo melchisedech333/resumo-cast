@@ -20,7 +20,7 @@ Uma dica é categorizar seus amigos e conhecidos por quem tem os olhos claros e 
 
 <br>
 
-<b>2 - Após olhar nos olhos, dar um sorisso.</b>
+<b>2 - Após olhar nos olhos, dar um sorriso.</b>
 
 Isso demonstra uma atitude amigável e já gera uma boa impressão.
 
