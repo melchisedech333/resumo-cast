@@ -29,7 +29,7 @@ Também vale lembrar que por vezes eu adiciono algum insight no resumo, ou algum
 
 <br>
 
-Você pode <a href="pdf/resumos-do-resumocast.pdf">clicar aqui</a> e baixar uma versão mais recente em PDF contendo todos os resumos produzidos.
+Você pode <a href="https://raw.githubusercontent.com/melchisedech333/resumo-cast/main/pdf/resumos-do-resumocast.pdf">clicar aqui</a> e baixar uma versão mais recente em PDF contendo todos os resumos produzidos.
 
 <br>
 
