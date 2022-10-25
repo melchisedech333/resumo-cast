@@ -3,7 +3,7 @@
 
 O livro nos mostra que o sucesso não depende exclusivamente das nossas atitudes exteriores, mas também de como encaramos as situações da vida, nos mostrando como isso se relaciona com nossas atitudes mentais.
 
-A maior habilidade que um bom empreendedor possui, é a capacidade de poder controlar e possuir o Mindset correto. Técnicas e coisas semelhantes vem apenas para cooperar com isso e te ajudar a atingir melhor performance.
+A maior habilidade que um bom empreendedor possui, é a capacidade de poder adquirir o Mindset correto. Técnicas e coisas semelhantes vem apenas para cooperar com isso e te ajudar a atingir melhor performance.
 
 <br>
 
