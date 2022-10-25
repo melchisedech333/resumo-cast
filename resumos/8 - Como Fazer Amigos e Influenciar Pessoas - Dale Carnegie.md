@@ -13,7 +13,7 @@ Fazer amigos significa conectar-se com as pessoas.
 - Aumentará seu prestígio e habilidade em conseguir as coisas.
 - Ajudará resolver queixas e manter seus contatos humanos agradáveis e suaves.
 - Te tornará um melhor orador.
-- Ajudará a dispertar o entusiasmo entre seus companheiros.
+- Ajudará a despertar o entusiasmo entre seus companheiros.
 
 <br>
 
@@ -67,7 +67,7 @@ Se você acha que nunca está errado, e acha que seus argumentos sempre serão s
 <br><br>
 A única maneira realmente efetiva de vencer uma discussão, é evitá-la. A melhor maneira de vencer uma guerra, é não entrando nela. Nem entrando, e nem criando.
 <br><br>
-Deixe o outro achar que ele tem razão, você não precisa empreender esforços mostrando aos outros que eles não tem razão. Discussões inuteis não levam a nada.
+Deixe o outro achar que ele tem razão, você não precisa empreender esforços mostrando aos outros que eles não tem razão. Discussões inúteis não levam a nada.
 <br><br>
 Concentre seu tempo e energia em construir coisas de valor, coisas concretas, seus negócios, empreendimentos, criações, em suma, foque em construir, e não em conturbar, estragar, destruir.
 

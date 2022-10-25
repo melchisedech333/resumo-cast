@@ -66,7 +66,7 @@ São aqueles capazes de iniciar uma reação em cadeia em indivíduos e organiza
 
 Como exemplo, havia uma empresa que era desleixada com a segurança dos funcionários, e isso culminava em muitos acidentes, o que afetava nos resultados da empresa em todas as outras áreas.
 
-Para resolver esse problema, foi criado um sistema onde um relatório completo deveria ser criado pelos gerentes responsáveis, e entregue para o presidente em 24 horas após a ocorrência de um acidente, juntamente com um plano para que o acidente nunca mais se repetice.
+Para resolver esse problema, foi criado um sistema onde um relatório completo deveria ser criado pelos gerentes responsáveis, e entregue para o presidente em 24 horas após a ocorrência de um acidente, juntamente com um plano para que o acidente nunca mais se repetisse.
 
 O acidente era a deixa, a rotina era o preenchimento do relatório junto com o plano de segurança, e a recompensa era que os gerentes só seriam promovidos se cumprissem essa norma.
 

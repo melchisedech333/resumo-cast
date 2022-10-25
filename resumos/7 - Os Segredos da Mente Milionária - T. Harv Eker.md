@@ -73,7 +73,7 @@ Admirar pessoas que atingiram coisas grandes, é o que se deve fazer.
 
 <b>7 - As pessoas de mentalidade rica buscam a companhia de pessoas positivas e bem sucedidas. As pessoas de mentalidade pobre buscam a companhia de indivíduos negativos e fracassados.</b>
 
-Devemos ter cuidado com a influẽncia, nosso círculo de amizades, e coisas semelhantes. Uma má influência pode simplesmente te arruinar. Bem como te desmotivar, te causar mal-estar e coisas semelhantes. De pessoas desse tipo você deve simplesmente se afastar.
+Devemos ter cuidado com a influência, nosso círculo de amizades, e coisas semelhantes. Uma má influência pode simplesmente te arruinar. Bem como te desmotivar, te causar mal-estar e coisas semelhantes. De pessoas desse tipo você deve simplesmente se afastar.
 
 <br>
 
