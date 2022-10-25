@@ -147,7 +147,7 @@ Decisões estratégicas são capazes de atingir um nível de otimização grande
 
 <b>16 - As pessoas de mentalidade rica agem apesar do medo. As de mentalidade pobre deixam-se paralisar pelo medo.</b>
 
-Isso aqui se torna muito claro quando você percebe que a maioria dos seus fracassos são ocasionados devido a seu medo e sua convardia.
+Isso aqui se torna muito claro quando você percebe que a maioria dos seus fracassos são ocasionados devido a seu medo e sua covardia.
 
 Ter medo não é o problema, o problema é se paralisar pelo medo, ou se acovardar frente às situações.
          
