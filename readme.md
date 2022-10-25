@@ -25,6 +25,14 @@ Também vale lembrar que por vezes eu adiciono algum insight no resumo, ou algum
 
 <br>
 
+<b>E claro, todos os direitos autorais, créditos e elogios devem ser dados aos autores do ResumoCast, e não a mim que sou um mero ouvinte.</b>
+
+<br>
+
+Você pode <a href="pdf/resumos-do-resumocast.pdf">clicar aqui</a> e baixar uma versão mais recente em PDF contendo todos os resumos produzidos.
+
+<br>
+
 <img src="https://img.shields.io/github/directory-file-count/melchisedech333/resumo-cast/resumos?label=Quantidade total de resumos" >
 
 <br>
