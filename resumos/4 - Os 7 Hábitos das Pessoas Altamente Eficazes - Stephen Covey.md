@@ -47,7 +47,7 @@ Não urgente, não importante
 ```
 Exemplo: escovar os dentes não é urgente, mas é importante.
 
-Focar nas atividade não urgente, mas imporantes, ajudam a evitar que as urgencias ocorram a todo momento, e que vocẽ fique gastando seu tempo somente "apagando incêndios".
+Focar nas atividade não urgente, mas importantes, ajudam a evitar que as urgências ocorram a todo momento, e que você fique gastando seu tempo somente "apagando incêndios".
 
 Tentar descobrir a única coisa, ou as poucas coisas que você pode fazer, para que todo o resto se torne mais fácil.
 
