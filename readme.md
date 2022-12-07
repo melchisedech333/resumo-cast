@@ -25,7 +25,7 @@ Também vale lembrar que por vezes eu adiciono algum insight no resumo, ou algum
 
 <br>
 
-<b>E claro, todos os direitos autorais, créditos e elogios devem ser dados aos autores do ResumoCast, e não a mim que sou um mero ouvinte.</b>
+<b>E claro, todos os direitos autorais, créditos e elogios devem ser direcionados aos autores do ResumoCast, e não a mim que sou um mero ouvinte.</b>
 
 <br>
 
@@ -48,5 +48,6 @@ Você pode <a href="https://raw.githubusercontent.com/melchisedech333/resumo-cas
 - <a href="resumos/7 - Os Segredos da Mente Milionária - T. Harv Eker.md">Os Segredos da Mente Milionária - T. Harv Eker</a>
 - <a href="resumos/8 - Como Fazer Amigos e Influenciar Pessoas - Dale Carnegie.md">Como Fazer Amigos e Influenciar Pessoas - Dale Carnegie</a>
 - <a href="resumos/9 - Mindset - Carol S. Dweck.md">Mindset - Carol S. Dweck</a>
+- <a href="resumos/10 - Quem Pensa Enriquece - Napoleon Hill.md">Quem Pensa Enriquece - Napoleon Hill</a>
 
 
